@@ -1,4 +1,4 @@
-# 
+# Enhance JetBrains Rider for PC | JetBrains Rider for Windows with instant JetBrains Rider for PC | JetBrains Rider for Windows Theme | custom-themes + build-automation, the #1
 
 
 
